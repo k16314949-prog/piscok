@@ -1,0 +1,2 @@
+# piscok
+tugas pak alfi
